@@ -5,7 +5,9 @@
 
 - 💬 Ask me about **Python**
 
-- 📫 You can reach me at **https://T.me/Spiderelite** / **ali.yah253219@gmail.com**
+- 📫 You can reach me at **[@Spiderelite](https://t.me/spiderelite)** / **ali.yah253219@gmail.com**
+
+- 📄 You can Know more about me : [Per](https://drive.google.com/file/d/1Rz_4IqfrWO5L7g98z4-BshLndkXOqnkq/view?usp=sharing) / [En](https://drive.google.com/file/d/1UPxNKUj9OXfYl_4dY3l11IDz8UrBtfE-/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
