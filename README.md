@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Ali Yahyaei</h1>
-<h3 align="center">An electrical engineer who loves programming and AI. I love open source!</h3>
+<h3 align="center">An electrical engineer who loves programming and AI. I graduated from Shahrood University of Technology with a bachelor degree. I am currently studying for a master's degree in artificial intelligence at Shahrood University of Technology. I love open source!</h3>
 
 - 🌱 I’m currently learning **AI**
 
