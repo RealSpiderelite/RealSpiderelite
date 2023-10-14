@@ -7,7 +7,7 @@
 
 - 📫 You can reach me at **[@Spiderelite](https://t.me/spiderelite)** / **ali.yah253219@gmail.com**
 
-- 📄 You can know more about me : [Per](https://drive.google.com/file/d/1Rz_4IqfrWO5L7g98z4-BshLndkXOqnkq/view?usp=sharing) / [En](https://drive.google.com/file/d/1UPxNKUj9OXfYl_4dY3l11IDz8UrBtfE-/view?usp=sharing)
+- 📄 You can know more about me : [Per](https://drive.google.com/file/d/1WaS7C0QOR-XQ2cL6lviXXA2R6aVvly5P/view?usp=sharing) / [En](https://drive.google.com/file/d/1UPxNKUj9OXfYl_4dY3l11IDz8UrBtfE-/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
